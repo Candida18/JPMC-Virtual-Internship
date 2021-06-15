@@ -1,1 +1,1 @@
-# JPMC-Virtual-Internship
+# JPMC Virtual Internship
